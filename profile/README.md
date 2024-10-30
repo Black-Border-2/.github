@@ -1,6 +1,6 @@
 # Black Border 2 Mod APK Download Free
 
-![Black Border 2 Banner](https://example.com/banner-image.jpg) <!-- Replace this URL with the actual image URL -->
+![Screenshot_13](https://github.com/user-attachments/assets/1c92a6e6-6b05-4654-bc87-85f082dd8388)
 
 **Black Border 2** is an immersive role-playing game where players step into the shoes of a border officer. Engage in complex decision-making, navigate intriguing storylines, and complete challenging tasks to protect your nation’s borders!
 
